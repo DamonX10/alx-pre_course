@@ -1,1 +1,1 @@
-My first readme
+Creative Idealist & Software engineer
